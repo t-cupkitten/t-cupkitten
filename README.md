@@ -33,5 +33,13 @@ $\color{#684269}{𝗣𝗮𝗸𝗸𝗮𝗻𝗲}$ &nbsp;&nbsp;&nbsp; $\color{#E6CD
   </a>
 <div align="right">
 
+<div align="center">
+
+<img width="588" height="456" alt="Screenshot 2026-09-07 002433" src="https://github.com/user-attachments/assets/bac2b359-a3d6-457f-b4f5-c52885a18f07" />
+
+<img width="506" height="827" alt="Screenshot 2026-09-07 003249" src="https://github.com/user-attachments/assets/853106f7-276d-48b4-86fd-b948f455ae18" />
+
+
+my cat if you even care
 
 
